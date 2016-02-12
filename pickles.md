@@ -2,7 +2,7 @@
 Refrigerator or "Day" pickles are quick pickles that aren't made in such a way that they're preserved for years but the tradeoff is you have pickles that are quick and easy to make.  If kept refrigerated they will last for several weeks.
 
 # Supplies needed:
-* 2 or 4 Quart pot
+* 4 Quart pot
 * 3 32oz tall canning jars
 * Distilled white vinegar
 * Whole garlic cloves
